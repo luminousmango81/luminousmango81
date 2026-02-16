@@ -4,7 +4,7 @@ haii :3
 
 interests: anime, ch, heated rilvary
 
-you may see me as my ponysona
+you may see me as my two ponysonas
 
 ![Image](https://github.com/user-attachments/assets/0f1f7d9e-9311-4def-a555-5e780510a555)
 mango 🥭♂️
@@ -13,6 +13,7 @@ mango 🥭♂️
 and thui 🪥♀️
 or other ocs or cosplays! 
 
+do not copy my ocs❌ inspo is okay but ask first✅
 
 freee c*h anytime unless 'dni' in name
 
