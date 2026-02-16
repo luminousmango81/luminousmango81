@@ -4,6 +4,9 @@ haii :3
 
 interests: anime, ch, heated rilvary
 
+you may see me as my ponysonas
+
+
 freee c*h anytime unless 'dni' in name
 
 𝐝𝐢𝐬𝐜𝐨𝐫𝐝: 𝐥𝐮𝐦𝐢𝐧𝐨𝐮𝐬𝐦𝐚𝐧𝐠𝐨𝟖𝟏
