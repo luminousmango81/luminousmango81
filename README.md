@@ -1,6 +1,6 @@
-meow
+haii :3
 
-(https://github.com/user-attachments/assets/436d8bce-e230-41fa-911a-e18c6e3e4293
+![17712051614677424076057106969163](https://github.com/user-attachments/assets/5241dd49-cef4-4647-bc07-f32f171a5732)
 
 interests: anime, ch, heated rilvary
 
