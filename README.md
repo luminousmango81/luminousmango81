@@ -12,7 +12,7 @@ mango 🥭♂️
 
 ![Image](https://github.com/user-attachments/assets/d5d7de53-f6d5-4e94-a588-3062e2bb6730)
 
-or thui 🪥♀️
+or crèmé 🪥♀️
 
 or other ocs or cosplays! 
 
