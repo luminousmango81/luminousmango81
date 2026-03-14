@@ -10,13 +10,13 @@ you may see me as my two ponysonas
 
 mango 🥭♂️
 
-![Image](https://github.com/user-attachments/assets/d5d7de53-f6d5-4e94-a588-3062e2bb6730)
+![Image](https://github.com/user-attachments/assets/3021e169-d508-42f3-803e-46f0ab5a46a9)
 
-or crèmé 🪥♀️
+or crèmé 🐰♀️
 
 or other ocs or cosplays! 
 
-do not copy my ocs❌ inspo is okay but ask first✅
+DONT BE A BUM AND COPY MY OCS❌ inspo is okay but ask first✅
 
 freee c*h anytime unless 'dni' in name
 
